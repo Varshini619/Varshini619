@@ -28,7 +28,7 @@
 
 ### 📫 Connect with Me
 
-- 📧 Email: [narsingvarshini619@gmail.com](mailto:narsingvarshini619@gmail.com)
+- 📧 Email: [narsingvarshini621@gmail.com](mailto:narsingvarshini621@gmail.com)
 - 💼 LinkedIn: [Narsing Varshini](https://www.linkedin.com/in/narsing-varshini-10250b21a/)
 - 💻 GitHub: [Varshini619](https://github.com/Varshini619)
 
